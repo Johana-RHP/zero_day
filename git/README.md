@@ -1,1 +1,1 @@
-Git directory readmi
+Actualización de Readmi 
