@@ -1,1 +1,4 @@
-Git directory readmi
+Actualización de Readmi 
+kocpqjwmnofifnh
+mcowsjpcpojm
+xmiwpnd
